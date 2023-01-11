@@ -7,4 +7,4 @@ So they say first several weeks are the hardest(?). So far it's true. Literally 
 
 P.S. Starting off with easy ones
 
-Fast forwars 2 weeks, I like practicing
+Fast forward 2 weeks, I like practicing
