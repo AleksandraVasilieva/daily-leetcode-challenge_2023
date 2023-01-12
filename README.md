@@ -5,4 +5,4 @@ Commited to daily leetcode practicing this year!!!!
 
 P.S. Starting off with easy ones
 
-Fast forward 2 weeks, go the hang of practicing
+Fast forward 2 weeks, got the hang of practicing
