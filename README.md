@@ -1,3 +1,3 @@
 # daily-leetcode-challenge
 
-P.S. April is dedicated to thesis writing, so taking a break
+P.S. Half of April + May are dedicated to thesis writing, so I'm taking a break
